@@ -1,0 +1,2 @@
+# premium-strip-plank-001-strip-planking-canoe-workshop
+You've spent hours on your strip planking canoe, but can you instantly recall how many strips you've laid, the exact epoxy mix ratio from last session, or which station you left off at? The Strip Planking Canoe Workshop Log ends the guesswork and wasted materials.  This Notion template transforms your build from a messy collection of paper notes an
